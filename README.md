@@ -1,2 +1,2 @@
 # Scripts-key
-All key here 
+HJHUB-OPASJSHS62N#$%JJ-8179283@×#73I2
